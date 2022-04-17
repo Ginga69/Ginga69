@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Ginga69
+- 👀 I’m interested in Minecraft in general
+- 🌱 I’m currently learning Modelling
